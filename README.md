@@ -1,7 +1,7 @@
 
-![Banner](https://lucasgebhardt.com.ar/wp-content/uploads/2024/05/FFFF.png)
+![Banner](https://lucasgebhardt.com.ar/wp-content/uploads/2024/06/cubes-2492010_1280-1.jpg)
 
-<h2>👋 &nbsp;Hola! soy Lucas</h2>
+<h2>👋 &nbsp;Hola!</h2>
 
 
 ### 👨🏻‍💻 &nbsp;Quien soy y qué hago?
